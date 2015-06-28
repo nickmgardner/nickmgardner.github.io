@@ -1,8 +1,20 @@
-# Nicholas M. Gardner
+## Nicholas M. Gardner ##
 
-## Table of Contents
-1.[Example](#example)
-2.[Example](#example2)
+### Publications ###
 
-## Example
-## Example2
+**Gardner, N. M.** & Hanson, M. What reptiles gave rise to birds? *Evolution: Education and Outreach* 7, 9 (2014).
+
+**Gardner, N. M.**, Holliday, C. M., & O'Keefe, F. R. The braincase of *Youngina capensis* (Reptilia, DIapsida): new insights from high-resolution CT scanning of the holotype. *Palaeontologia Electronica* 13 (3), 19A (2010).
+
+**Gardner, N. M.** No direct evidence for feathers in *Tyrannosaurus rex*. *The American Biology Teacher* 70 (1), 392 (2008).
+
+Holliday, C.M. & **Gardner, N. M.** A new eusuchian crocodyliform with novel cranial integument and its significance for the origin and evolution of Crocodylia. *PLoS ONE* 7 (1), e30471 (2012).
+
+Holliday, C.M., **Gardner, N. M.**, Paesani, S. M., Douthitt, M. J. & Ratliff, J. L. Microanatomy of the mandibular symphysis in lizards: patterns in fiber orientation and Meckel's cartilage and their significance in cranial evolution. *The Anatomical Record* 293 (8), 1350-1359 (2010).
+
+### Education ###
+
+**Marshall University**, Huntington, W Va, 2015 (pending review), biology.
+
+**Potomac State College of WVU**, Keyser, W Va, 2008, geology.
+
