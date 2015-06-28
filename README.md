@@ -12,9 +12,17 @@ Holliday, C.M. & **Gardner, N. M.** A new eusuchian crocodyliform with novel cra
 
 Holliday, C.M., **Gardner, N. M.**, Paesani, S. M., Douthitt, M. J. & Ratliff, J. L. Microanatomy of the mandibular symphysis in lizards: patterns in fiber orientation and Meckel's cartilage and their significance in cranial evolution. *The Anatomical Record* 293 (8), 1350-1359 (2010).
 
+### Outreach ###
+
+"Fossils and Bones", Fountain United Brethren Church Community Carnival, June 10, 2015.
+
+"Bones and other tissues", Mineral County STEM Festival, March 28, 2015.
+
+"Reptile connective tissues", Mineral County STEM Festival, March 22, 2014.
+
 ### Education ###
 
-**Marshall University**, Huntington, W Va, 2015 (pending review), biology.
+**Marshall University**, Huntington, W Va, 2015 (pending credit review), biology.
 
 **Potomac State College of WVU**, Keyser, W Va, 2008, geology.
 
