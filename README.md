@@ -2,6 +2,8 @@
 
 ### Publications ###
 
+PDFs available upon request for all papers.
+
 **Gardner, N. M.** & Hanson, M. What reptiles gave rise to birds? *Evolution: Education and Outreach* 7, 9 (2014).
 
 **Gardner, N. M.**, Holliday, C. M., & O'Keefe, F. R. The braincase of *Youngina capensis* (Reptilia, DIapsida): new insights from high-resolution CT scanning of the holotype. *Palaeontologia Electronica* 13 (3), 19A (2010).
