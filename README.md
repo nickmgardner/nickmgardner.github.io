@@ -18,7 +18,7 @@ Holliday, C.M., **Gardner, N. M.**, Paesani, S. M., Douthitt, M. J. & Ratliff, J
 
 **Gardner, N. M.** Testing the holophyly of pythonomorph squamates and the ecological consequences for snake origins. Secondary Adaptations of Tetrapods to Life in the Water 7th Meeting, 2014, Jun 2-4, George Mason University, Fairfax, Va.
 
-**Gardner, N. M.**, et al. The braincase of *Youngina capensis* (Reptilia, Diapsida): new insights from high-resolution CT scanning of the holotype. J Vert Paleo 30 (Annual meeting abstracts, 2010): 94A.
+**Gardner, N. M.**, Holliday, C. M. & O'Keefe, F. R. The braincase of *Youngina capensis* (Reptilia, Diapsida): new insights from high-resolution CT scanning of the holotype. J Vert Paleo 30 (Annual meeting abstracts, 2010): 94A.
 
 **Gardner, N. M.**, Bhullar, B.-A., Holliday, C. M. & O'Keefe, F. R. Cranial anatomy in the basal diapsid *Youngina capensis* and its relevance to higher radiations of Permo-Triassic Neodiapsida. J Vert Paleo 31 (Annual meeting abstracts, 2011): 114A.
 
