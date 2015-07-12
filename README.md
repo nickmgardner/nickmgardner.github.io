@@ -32,8 +32,8 @@ Holliday, C.M., **Gardner, N. M.**, Paesani, S. M., Douthitt, M. J. & Ratliff, J
 
 ### Education ###
 
-**Marshall University**, Huntington, W Va, 2015 (pending credit review), biology.
+**Marshall University**, Huntington, W Va, 2015 (pending credit review), Bachelors of Science in Ecology and Evolutionary Biology.
 
-**Potomac State College of WVU**, Keyser, W Va, 2008, geology.
+**Potomac State College of WVU**, Keyser, W Va, 2008, Associates of Arts in Geology.
 
 Page created 6/28/2015, last edited 6/28/2015.
