@@ -44,11 +44,10 @@ Holliday, C.M., **Gardner, N. M.**, Paesani, S. M., Douthitt, M. J. & Ratliff, J
 
 **Mary F. Shipper Library** *Library Aide* **2014**
 
-**City of Norfolk** *Groundskeeper* **2012**
-
 **Marshall University** *Research Assistant* **2008 to 2011**
 
 **National Archives and Records Administration** *Intern* **2008**
 
 **Mary F. Shipper Library** *Library Aide* **2006 to 2008**
+
 Page created 6/28/2015, last edited 7/13/2015.
