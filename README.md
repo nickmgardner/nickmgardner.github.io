@@ -36,4 +36,19 @@ Holliday, C.M., **Gardner, N. M.**, Paesani, S. M., Douthitt, M. J. & Ratliff, J
 
 **Potomac State College of WVU**, Keyser, W Va, 2008, Associates of Arts in Geology.
 
-Page created 6/28/2015, last edited 6/28/2015.
+### Experience ###
+
+**Mary F. Shipper Library** *Library Technical Assistant I* **2015**
+
+**Potomac State College Academic Success Center** *Science and Math Tutor* **2014 to 2015**
+
+**Mary F. Shipper Library** *Library Aide* **2014**
+
+**City of Norfolk** *Groundskeeper* **2012**
+
+**Marshall University** *Research Assistant* **2008 to 2011**
+
+**National Archives and Records Administration** *Intern* **2008**
+
+**Mary F. Shipper Library** *Library Aide* **2006 to 2008**
+Page created 6/28/2015, last edited 7/13/2015.
